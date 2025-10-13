@@ -22,6 +22,7 @@
 
 > I'm usually in Roblox area, alone or with friends. If I'm not there, I'm either offline, in other server, or in other area!
 
+
 ## " I am the law, heh heh heh. "
 
 > Idk else what to add lelelele
@@ -29,3 +30,5 @@
 > Uhhhh Ya'll can be freaky w me or whatever, just have limit plz
 
 > Credit to my friend for Postal Dude voiceline list!
+
+> If you got a problem with me, directly say it to me, don't ask your friends or whatever to talk it out to me
