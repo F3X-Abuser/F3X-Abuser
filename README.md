@@ -4,7 +4,7 @@
 
 > I'm 19 - Transmasc Interbinary ` I use He / They! + Pansexual
 
-> Cuds? Sure! Unless my name said otherwise. I really love cuds. Feel free to sit w me even if I don't have it in my name!
+> Cuds? If I'm sitting alone, sure! If I'm already with my friend, please ask first
 
 > Whisper 2 interact! I'm not always on-tab tehe. Either busy or playing games
 
