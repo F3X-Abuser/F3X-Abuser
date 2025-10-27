@@ -4,7 +4,7 @@
 
 > I'm 19 - Transmasc Interbinary ` I use He / They! + Pansexual
 
-> Cuds? If I'm sitting alone, sure! If I'm already with my friend, please ask first
+> Cuds? If I'm sitting alone, sure! If I'm already with my friend, please ask first + cover discomfort / trigger unless friends. I like seeing my pixel pony on the screen...
 
 > Whisper 2 interact! I'm not always on-tab tehe. Either busy or playing games
 
@@ -20,14 +20,16 @@
 
 > I'm on the more introverted side, if I yap a lot that either means I'm on high energy or comfortable!
 
-> I'm usually in Roblox area, alone or with friends. If I'm not there, I'm either offline, in other server, or in other area!
+> I usually avoid crowded space. I don't like huge cud piles either, so if I moved, it's most likely that. It's no one fault, I just get overwhelmed easily.
 
 
 ## " I am the law, heh heh heh. "
 
 > Idk else what to add lelelele
 
-> Uhhhh Ya'll can be freaky w me or whatever, just have limit plz
+> My other name you can call me is N0l4y/Nolay. It's based on my kinsona:3 You can give me nicknames too (friends only). You can also call me Searchlight
+
+> Uhhhh Ya'll can be freaky w me or whatever, just have limit plz. If you're below 15 and gets freaky w me, just know you're on a VERY thin ice
 
 > Credit to my friend for Postal Dude voiceline list!
 
