@@ -1,6 +1,6 @@
 ## " Hi there. "
 
-> Heyya, my name's Screen, but feel free to call me by the cosplay I'm using!
+> Heyya, my name's Screen / Nolay / Hal, but feel free to call me by the cosplay I'm using!
 
 > I'm 19 - Transmasc Interbinary ` I use He / They! + Pansexual
 
